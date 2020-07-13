@@ -1,2 +1,2 @@
 # OSI
-<img src="https://github.com/EoJin-Kim/OSI/issues/1#issue-655576187"></img>
+<img src="https://user-images.githubusercontent.com/62640679/87271650-ce534880-c50e-11ea-96d7-f5ecb996fad4.png"></img>
